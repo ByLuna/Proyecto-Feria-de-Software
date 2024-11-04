@@ -4,7 +4,7 @@ Grupo para la feria
 integrantes
 
 
-Nelcy Nohemy Avalos - Lider
+Nelcy Nohemy Avalos 
 
 
-Daniel Enrique Luna 
+Daniel Enrique Luna - Líder 
